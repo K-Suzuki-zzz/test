@@ -2,5 +2,3 @@
 cccccffrrrr
 dafsa
 tiagau
-reara
-teete
